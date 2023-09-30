@@ -1,0 +1,1 @@
+# kinokamerka01
